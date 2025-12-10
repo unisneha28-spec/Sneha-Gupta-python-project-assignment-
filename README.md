@@ -1,1 +1,1 @@
-# Sneha-Gupta-python-project-assignment-
+# Sneha Gupta (Python project and assignments)
